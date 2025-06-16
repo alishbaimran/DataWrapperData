@@ -1,9 +1,8 @@
 ## Flying Etiquette: How Often Can You Get Up?
 
-I chose to explore the question: **"On a 6-hour flight from NYC to LA, how many times is it acceptable to get up if you're not in an aisle seat?"**  
-This topic caught my interest because it reflects a common but often unspoken social dilemma in air travel. It combines etiquette, personal comfort, and social norms — making it both relatable and revealing.
+I picked this question because it’s something almost everyone who's flown has experienced — being stuck in the middle or window seat and needing to get up, whether it’s to use the bathroom, stretch, or grab something from the overhead bin. It can feel awkward asking the aisle person to move, especially multiple times. It’s one of those unspoken social rules on planes, and I was curious to see where most people draw the line. 
 
-The chart below visualizes the responses from over 1,000 participants. Most people (296) believe it’s acceptable to get up **three times**, followed by **two times** (277). Very few respondents (13) said it’s not okay to get up at all. This suggests that most travelers are willing to tolerate some movement — but within reason.
+The chart shows that most people (296) think getting up **three times** during a 6-hour flight is fine, with **two times** coming in close behind (277). Only 13 people said it’s not okay to get up at all, which tells me that most people are understanding as long as you're not overdoing it.
 
 ![Flying Etiquette Chart](9eMTe-on-a-6-hour-flight-from-nyc-to-la-how-many-times-is-it-acceptable-to-get-up-if-you-re-not-in-an-aisle-seat-.png)
 
